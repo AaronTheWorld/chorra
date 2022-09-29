@@ -24,3 +24,4 @@
 
 > Visita tamén [i-rochiño](https://irocho.wordpress.com)
 
+<img src="https://plantillasdememes.com/img/plantillas/ta-bien01592717127.jpg">
